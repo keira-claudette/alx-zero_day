@@ -1,2 +1,2 @@
 You may alter this source code.
-Use it for commercial use
+Use it for commercial gain.
